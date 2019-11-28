@@ -1,2 +1,2 @@
 # college
-anits college project 
+Jaichand Jaguar
